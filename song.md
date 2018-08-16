@@ -1,2 +1,2 @@
 
-the itsy bits spiiiiider crawled up the water apout
+the itsy bitsy spider crawled up the water spout
